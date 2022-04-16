@@ -21,3 +21,6 @@ As long as you love me...
 I want it that way...
 Backstreet Boys
 
+Aq yg dulu bkn yg sekarang
+dulu ditendang
+
