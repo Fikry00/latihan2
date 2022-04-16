@@ -15,6 +15,8 @@ mimpi buruk sudah pun tiba
 
 800 tahun penantian
 
+Sultan AL Fatih
+
 As long as you love me...
 I want it that way...
 
